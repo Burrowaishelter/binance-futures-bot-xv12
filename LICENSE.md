@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Burrowaishelter.github.io/binance-futures-bot-xv12/ ) |
  |---------------------|----------------------:|
 
 
